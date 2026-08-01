@@ -11,9 +11,9 @@ I go by MIRROR PRONOUNS , I don't care what you call me ! She/Her , He/Him , The
 </div> 
 
 <div align="center">
-my cute friends aw
+my cute friends aw ilyg aww so cute
 
-[vasco](https://github.com/vascoscoscos) , [rose](https://github.com/sleepyroseee) , [alim](https://github.com/5orrows) , yuu , lilah 
+[vasco](https://github.com/vascoscoscos) , [rose](https://github.com/sleepyroseee) , [alim](https://github.com/5orrows) , yuu 
 </div> 
 
 <img width="1280" height="258" alt="tumblr_b6605a798a561470172358e17844409a_b6e210d4_1280" src="https://github.com/user-attachments/assets/4f7a650f-22ac-425a-b27a-9d7f430dd74f" />
