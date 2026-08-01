@@ -27,7 +27,7 @@ links !
 <div align="center">
 my cute friends aw ilyg aww so cute
 
-[vasco](https://github.com/vascoscoscos) , [rose](https://github.com/sleepyroseee) , [alim](https://github.com/5orrows) , yuu 
+[vasco](https://github.com/vascoscoscos) , [rose](https://github.com/sleepyroseee) , [alim](https://github.com/5orrows) , [yuu](https://github.com/ltadorii)
 </div> 
 
 </br>
