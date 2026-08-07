@@ -19,7 +19,7 @@ links !
 
 </br>
 
-[strawpage](https://golden-lightning.straw.page) , [ata](https://captsquarters.atabook.org/) , [pronouns](https://en.pronouns.page/@sunny.eyed)
+[strawpage](https://golden-lightning.straw.page) , [ata](https://viruabwn.atabook.org/) , [pronouns](https://en.pronouns.page/@sunny.eyed)
 </div> 
 
 </br>
